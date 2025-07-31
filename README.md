@@ -1,5 +1,5 @@
-### Hi derr 👋
-### this should be interesting
+### My profile pic is the guy on the boat yelling "It's Kaizer Size!!!" in a movie with one of the most forced twist endings of any film I've ever seen. I love it.
+
 <!--
 **JuBowstin/JuBowstin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
